@@ -1,6 +1,10 @@
 Belakangan ini warganet dihebohkan dengan video viral selebgram bernama Bulan Sutena berdurasi 1 menit 14 detik.
 
-Pada video tersebut, terlihat ada seseorang pemeran wanita berwajah mirip dengan selebgram manis asal Bali.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Bahkan, warganet menduga wanita yang ada pada video tersebut ialah Bulan Sutena.
 
