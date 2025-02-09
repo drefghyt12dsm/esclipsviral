@@ -1,6 +1,10 @@
 Sosok dalam video tersebut memiliki kemiripan wajah dengan wanita cantik asal Gianyar, Bali itu, sehingga memicu spekulasi dan penyebaran luas di media sosial.
 
-Tak hanya itu, warganet juga ramai membahas dugaan adanya video syur lain yang disebut-sebut diperankan oleh wanita dengan rupa serupa Bulan Sutena.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Baca Juga: Viral Video 1 Menit 14 Detik Bulan Sutena Diburu Banyak Warganet, Begini Fakta-Faktanya
 
