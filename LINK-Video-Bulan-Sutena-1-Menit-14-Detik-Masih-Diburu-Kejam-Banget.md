@@ -1,6 +1,10 @@
 Link Video Bulan Sutena 1 menit 14 detik masih diburu warganet di media sosial.
 
-Video syur tersebut diduga mirip penyanyi sekaligus seleb TikTok Bulan Sutena.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Dalam video 1 menit 14 detik yang beredar di media sosial X, berada di sebuah ruangan dengan latar belakang kaca serta tirai jendela warna kuning.
 
